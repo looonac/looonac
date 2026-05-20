@@ -1,5 +1,5 @@
 ## $\color{darkblue}{\text{୨ৎ ── (..◜ᴗ◝..) }}$
-### ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=MUTINY-DUOO) <-- THIS IS NEW IGNORE LOW COUNT <br>
+### ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=MUTINY-DUOO) | [MY DNI LIST](https://arrowsdnilist.straw.page/) <br>
 ### $\color{darkblue}{\text{ ⟶ i am THE N1 loonac fan, PLEASE give me anything loonac themed ✦ ┆ }}$ <br>
 ### $\color{blue}{\text{ ⟶ C+H ALWAYS!! and EXTREMELY encouraged, yes even when im with friends. }}$ <br>
 ### $\color{darkblue}{\text{ ⟶ i do disconnect frequently due to account limitations }}$
