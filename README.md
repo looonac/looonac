@@ -5,6 +5,6 @@
 ### $\color{darkblue}{\text{ ⟶ i do disconnect frequently due to my internet }}$
 ### $\color{darkblue}{\text{ ⟶ i fictkin loonac, the character NOT the person irl. }}$
 # $\color{orange}{\text{ MY }}$ $\color{blue}{\text{ BARRIER }}$ $\color{white}{\text{ TRIO !! }}$ 
-### ╰› [Rot!!](https://github.com/dimofyyy) $\color{darkblue}{\text{the dimofyy to my loonac!}}$ <br>
+### ╰› [Rot!!](https://github.com/dimofyyy) $\color{darkblue}{\text{the Dimofyy to my loonac!}}$ <br>
 ### ╰› [Cheron!!](https://github.com/RADIANT-DAY) $\color{darkblue}{\text{the Nufuli to my loonac!}}$ <br>
 ![me](https://github.com/MUTINY-DUOO/MUTINY-DUOO/blob/main/loonac-death.gif?raw=true)
