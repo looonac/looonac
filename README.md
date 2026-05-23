@@ -3,5 +3,8 @@
 ### $\color{darkblue}{\text{ ⟶ i am THE N1 loonac fan, PLEASE give me anything loonac themed ✦ ┆ }}$ <br>
 ### $\color{blue}{\text{ ⟶ C+H ALWAYS!! and EXTREMELY encouraged, yes even when im with friends. }}$ <br>
 ### $\color{darkblue}{\text{ ⟶ i do disconnect frequently due to my internet }}$
-### ╰› [Rot!!](https://github.com/dimofyyy) $\color{darkblue}{\text{THE dimofyy to my loonac!}}$ ‿‿‿‿ $\color{darkblue}{\text{give them a follow NOW}}$ <br>
+### $\color{darkblue}{\text{ ⟶ i kin loonac, the character NOT the person irl. }}$
+# $\color{orange}{\text{ MY }}$ $\color{blue}{\text{ BARRIER }}$ $\color{white}{\text{ TRIO !! }}$ 
+### ╰› [Rot!!](https://github.com/dimofyyy) $\color{darkblue}{\text{the dimofyy to my loonac!}}$ <br>
+### ╰› [Cheron!!](https://github.com/RADIANT-DAY) $\color{darkblue}{\text{the Nufuli to my loonac!}}$ <br>
 ![me](https://github.com/MUTINY-DUOO/MUTINY-DUOO/blob/main/loonac-death.gif?raw=true)
