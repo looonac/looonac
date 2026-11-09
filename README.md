@@ -2,3 +2,4 @@
 <div align="center">
   <img src="Screenshot_6.png" alt="Project Logo" width="600" />
 </div>
+<p align="center"> [Strawpage]([https://looonac.straw.page/) , [Atabook](https://docs.github.com)
